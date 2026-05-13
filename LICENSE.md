@@ -1,4 +1,4 @@
-#  
+#  Experience jujutsu infinite like never before with jujutsu infinite Script advanced, the #1 Script. Includes esp and infinite resources for
 
 
 
